@@ -12,6 +12,6 @@ Cybersecurity student | Python | Ciber SOC | Network | Firewall
 Me destaco por mi liderazgo, capacidad de análisis y gestión, y por contar con excelentes habilidades de comunicación, atención al cliente y resolución de problemas, incluso en entornos de alta presión.
 
 🔵 Linkedin:
-https://www.linkedin.com/in/jenny-revilla-g-06ba7937a/" />
+"https://www.linkedin.com/in/jenny-revilla-g-06ba7937a/"
 
    

@@ -15,4 +15,4 @@ Me destaco por mi liderazgo, capacidad de análisis y gestión, y por contar con
 
 📞 Contacto
 
-    Email: jenny.revilla@gmail.com
+    Linkedin: https://www.linkedin.com/in/jenny-revilla-g-06ba7937a/
